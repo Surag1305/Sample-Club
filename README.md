@@ -1,2 +1,0 @@
-# Sample-Club
-Sample Club
